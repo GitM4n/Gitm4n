@@ -65,7 +65,7 @@
 
 ## 📫 How to reach me
 - Email: korolyov.ahmed@bk.ru
-- Telegram: https://t.me/Ne0byazateIn0
+- Telegram: https://t.me/Gitm4n
 
 
 
